@@ -1,3 +1,1 @@
 # SpearTrail
-
-TUt7Q0hBSU5TX09GX0hFTExfRklSRX0K
